@@ -19,3 +19,9 @@
 ![images (4)](https://github.com/lifernandez/photos/assets/43424745/cb217611-4e4d-45c9-a06a-8edca381ba7a)
 ![kojirou-sasaki-DLdDrb2d4F4-unsplash-1-scaled](https://github.com/lifernandez/photos/assets/43424745/2e0ad445-9c74-4206-9ba8-52094561837f)
 ![chihuahua-guide](https://github.com/lifernandez/photos/assets/43424745/e6bddac8-46f3-4727-a96a-600d90f85d36)
+
+![Vector-13](https://github.com/lifernandez/photos/assets/43424745/ca246f6a-c0f6-4ff9-8e55-f2863d72d668)
+![Vector-12](https://github.com/lifernandez/photos/assets/43424745/0f67bb84-02d9-4d88-96f2-131b2434e7f1)
+![Vector-11](https://github.com/lifernandez/photos/assets/43424745/7af50c42-4866-4c8f-a419-b0decc61ac5a)
+
+
